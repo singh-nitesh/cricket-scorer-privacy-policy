@@ -2,7 +2,7 @@
 
 Last Updated: June 2026
 
-Box Cricket Scorer respects your privacy.
+Cricket Scorer respects your privacy.
 
 ## Information We Collect
 
