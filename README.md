@@ -42,4 +42,4 @@ We may update this Privacy Policy from time to time. Changes will be posted on t
 
 For questions regarding this Privacy Policy, contact:
 
-[your-email@example.com](mailto:your-email@example.com)
+[13.nitesh.13@gmail.com](mailto:13.nitesh.13@gmail.com)
